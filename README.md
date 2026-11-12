@@ -1,0 +1,1 @@
+kod n ajillaj baigaa
